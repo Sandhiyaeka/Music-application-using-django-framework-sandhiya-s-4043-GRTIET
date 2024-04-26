@@ -10,7 +10,7 @@ Student's NM Register Number : au110321104043
 
 Student's Current Year : IIIrd Yr
 
-Student's Email : janukavi2004@gmail.com
+Student's Email : sandhiya230619@gmail.com
 
 Student's Contact Number : 
 +919944669402
